@@ -1,4 +1,4 @@
-# Elden Ring: Guida alle quest
+# Guada ai Segreti di Omori
 
 Benvenuto nella Guida ai Segreti di Omori
 
